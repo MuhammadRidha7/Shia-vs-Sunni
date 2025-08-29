@@ -11,6 +11,7 @@ Feel free to contact me.
 5. [The severity of the wrath of Fatima](#the-severity-of-the-wrath-of-fatima)
 6. [If Abu Bakr was the righteous caliph, then Fatima died as a kafer](#if-abu-bakr-was-the-righteous-caliph-then-fatima-died-as-a-kafer)
 7. [Aisha's animosity against The Ahl al-Bayt](#aishas-animosity-against-the-ahl-al-bayt)
+8. [More info on the characters of Abu Bakr and Umar](#more-info-on-the-characters-of-abu-bakr-and-umar)
 
 # Intro
 
@@ -190,7 +191,7 @@ Aisha said: When the sickness of The Prophet (s) worsened, he would be carried a
 
 Aisha was delighted to hear the news of the death of Ali. \
 `Tarikh Tabari, vol 3, page 159` \
-`At-Tabaqat ul-Kubra, vol 3, page 38 and page 40` \
+`Tabaqat ul-Kubra, vol 3, page 38 and page 40` \
 `Maqatil ut-Talibin, vol 1, page 11` \
 `Kamil fit-Tarikh, vol 3, page 259`
 
@@ -228,3 +229,199 @@ Similar occasions: \
 **Aisha:** \
 The Prophet (s) gestured to us not to feed him medicine, but since sick people hate medicine, we fed him anyway. He later told us: Everyone in the house should be fed this 'medicine' except Abbas who was not present to see what you were up to. \
 `Sahih Bukhari, vol 4, page 1618, hadith 4189`
+
+# More info on the characters of Abu Bakr and Umar
+
+**The Prophet (s):** \
+Whoever takes leadership over a group of Muslims while he knows there is better than him, he has betrayed Allah, His Messenger, and all of Muslims. \
+`Tamhid ul-Awa'il wa Talkhis ud-Dala'il, vol 1, page 486`
+
+**Abu Bakr:** \
+By Allah, I am not the best of you. \
+`Tarikh Tabari, vol 3, page 224` \
+`Sharh Nahj ul-Balagha, by Ibn Abil Hadid, vol 17, page 156` \
+`Tabaqat ul-Kubra, vol 3, page 159` \
+`Al-Bidaya wan-Nihaya, by Ibn Kathir, vol 9, page 418 and vol 6, page 333` \
+`Musannaf, vol 11, page 336` \
+And many more sources...
+
+If Abu Bakr was just down-playing his rank out of humility, then why did he swear by Allah? \
+If he was truthful, then he is a traitor, and if not, then he is a liar. As we examined earlier, Ali saw him as both even after his death.
+
+Abu Bakr and wanted to return the caliphate to Ali, but Umar denied him from doing that. \
+`Tarikh Tabari, vol 2, page 236`
+
+#
+
+Umar used to recite Al-Fatiha incorrectly in his salah:
+
+Correct: Sirat __alladhina__ an'amta alayhim ghayr-il-maghdhubi alayhim __wa la-dhallin__ \
+Umar: Sirata __man__ an'amta alayhim ghayri-il-maghdhubi alayhim __ghayr-idh-dhallina alayhim wa ghayr-adh-dhallin__ \
+`Masahif, by Ibn Abi Dawud, vol 1, pages 284-286` \
+(Ibn Abi Dawud and Ibn Athir have said this hadith has sahih isnad)
+
+#
+
+Ali, Zubayr and all of Ansar were against Abu Bakr and only wanted Ali. \
+`Sahih Bukhari, vol 6, page 2505` \
+`Tarikh Tabari, vol 2, page 233`
+
+Bani Hashim and even Bani Umayyah highly preferred Ali. \
+`Minhaj us-Sunnah, by Ibn Tayimiyah, vol 7, page 49`
+
+**Umar:** \
+My bay'ah (pledge of allegiance) with Abu Bakr in the saqifah was a miscalculation, but Allah saved us from its disaster. If someone tries to do something like this ever again, kill him. \
+`Sahih Bukhari, vol 6, page 2505`
+
+**The Prophet (s):** \
+Pray behind any good or evil person. \
+`Fiqh ala Madhahib Arba'a, vol 1, pages 409-428`
+
+#
+
+**Allah (swt):** \
+If you do not find water, then purify yourself with clean dirt. \
+`Surah an-Nisa, verse 43`
+
+**Umar:** \
+If I don't find water, I will not pray. \
+`Sunan Abu Dawud, vol 1, page 81` \
+`Sunan Nisa'i, vol 1, page 168` \
+`Sunan al Kubra, vol 1, page 133` \
+`Musannaf, vol 1, pages 238-239` \
+`Umdat ul Qari, vol 4, page 19` \
+`Mu'jam al Kabir, vol 9, page 314`
+
+#
+
+**Umar, regarding Taraweeh:** \
+This is a good bid'ah. \
+`Sahih Bukhari, vol 3, page 45, hadith 2010`
+
+**The Prophet (s):** \
+All bid'ah is misguidance, all misguidance leads to hellfire. \
+`Sahih Muslim, vol 2, page 592, hadith 867`
+
+Mut'ah was halal during the lifetime of The Prophet (s) and even Abu Bakr, but Umar said that he specifically made it haram! \
+`Sahih Muslim, vol 2, page 1023` \
+`Sunan ul-Kubra, vol 7, page 237` \
+`Musnad Ahmad, vol 1, page 52 and vol 3, page 325` \
+`Tarikh Madinah Damishq, by Ibn Asakir, vol 64, page 71` \
+`Tahdhib ul Kamal, vol 31, page 214`
+
+Imam Malik and Ibn Abbas believed Mut'ah is halal. \
+`Mustadrak, vol 2, page 334, hadith 3192` \
+`Al-Mabsut, vol 5, page 152`
+
+Umar commanded "As-Salat khayrun min-an-noum" (which means: salah is better than sleep) to be added to the adhan of fajr. \
+`Muwatta' Imam Malik, vol 1, page 72`
+
+Sa'd ibn Abi Waqqas was the first person to say "As-Salat khayrun min-an-noum", but then said it is bid'ah and quit it, and Bilal would not do adhan for Umar. \
+`Musannaf, vol 1, page 474`
+
+#
+
+Abu Bakr and Umar would drink even after it became haram. \
+`Fat-h ul-Bari, by Ibn Hajar, vol 10, page 37` \
+`Sunan al Kubra, vol 8, page 519` \
+In fact, some Salafi scholars say that drinking is not haram because the sahaba used to engage in it, for example: \
+`Ruh ul-Ma'ani, by Alusi, vol 1, page 509` \
+`Tafsir Qurtubi, vol 3, page 60`
+
+Umar would drink during his Caliphate. \
+`Musannaf, vol 6, page 502` \
+`Sunan Bayhaqi, vol 8, page 299` \
+`Muwatta' Imam Malik, vol 2, page 894` \
+`Sunan Daruqutni, vol 4, page 259` \
+`Istidhkar, vol 8, page 247` \
+`Bada'i' us-Sana'i', vol 5, page 116` \
+`Jami ul-Masatid Abu Hanifa, vol 2, page 192` \
+`Al-Mabsut, vol 24, pages 8-11`
+
+Umar even drank on his deathbed! \
+`Tarikh Madinah Damishq, by Ibn Asakir, vol 44, page 430`
+
+#
+
+**The Prophet (s):** \
+The best of you is the best to his wives. \
+`Sunan Ibn Majah, vol 1, page 636, hadith 1978`
+
+**Aisha:** \
+The Prophet (s) never hit anything with his hand, not a wife, nor a servant. \
+`Sahih Muslim, vol 4, page 1814, hadith 2328`
+
+Ash'ath ibn Qays said that he was invited over to Umar's house, and he beat up his wife. \
+`Mustadark, vol 4, page 194` \
+`Sunan Ibn Majah, vol 1, page 639, hadith 1986` \
+`Musnad Ahmad, vol 1, page 20, hadith 122` \
+`Tahdhib ul Kamal, vol 18, page 31` \
+`Tafsir Quran Adhim Ibn Kathir, vol 1, page 493`
+
+#
+
+**The Prophet (s) told Abu Bakr:** \
+Indeed, Shirk is hidden inside you. Abu Bakr asked: Is shirk other than worshipping other than Allah? \
+The Prophet (s) repeated: By him, who my life is in the hand of, shirk is hidden within you! \
+`Adab ul-Farid, by Bukhari, page 243, hadith 726`
+
+#
+
+Umar did not allow hadiths from The Prophet (s) to be said, or even tafsir of The Quran. \
+`Mustadrak, vol 1, page 183` \
+`Sunan Ibn Majah, vol 1, page 12` \
+`Sunan Darimi, vol 1, page 329` \
+`Tabaqat al-Kubra, vol 6, page 87`
+
+Umar incarcerated three people for sharing hadith, among which is Ibn Mas'ud. \
+`Tadhkirat ul-Huffadh, by Dhahabi, vol 1, page 7`
+`Majma uz-Zawa'id, by Haythami, vol 1, page 149`
+
+Someone asked Umar a question about The Quran so Umar incarcerated him and hit him on several occasions, breaking his skull, before finally releasing him, and he sent people to go after him and shout: He wanted knowledge but it was a mistake! \
+`Musannaf, vol 11, page 426` \
+`Tarikh Madinah Damishq, by Ibn Asakir, vol 23, pages 411-412` \
+`Sunan Darimi, vol 1, pages 66-67, hadiths 144-148` \
+`Tafsir Quran Adhim, by Ibn Kathir, vol 2, page 283` \
+`Tafsir al-Kabir, vol 23, page 128`
+
+#
+
+**Umar:** \
+Has not remained anything in me from the time of jahaliyah, except I am not ashamed of being Nikah'd or doing Nikah. \
+`Tabaqat ul-Kubra, vol 3, page 269`
+
+Some claim nikah here means "taking care" but it's clearly refering to the jihaly way! So it can't be "taking care" or "marriage with the opposite sex" but rather "zina" and "lawat".
+In zina, the man is always the top and the woman is always the bottom, but since Umar is saying he's sometimes the top and sometimes the bottom, he must be talking about lawat and sodomy!
+
+#
+
+**Umar grabbed The Prophet (s) by his shirt and said:** \
+Hasn't Allah forbidden you from praying for Munafiqin? The Prophet (s) ignored him. \
+`Sahih Muslim, vol 8, page 120`
+
+Another instance of Umar condemning The Prophet (s): `Sahih Muslim, vol 1, page 59`
+
+#
+
+**Abu Bakr:** \
+Lucky you, O bird! You eat fruits and sit on trees, and you will not have Hisab, nor Iqab. I wish I too was on a tree and a camel passing by would eat me and I would come out alongisde its feces, and I was never human! \
+`Musannaf, vol 7, page 91` \
+`Minhaj us-Sunnah, by Ibn Tayimiyah, vol 3, page 120` \
+`Riyadh un-Nadharah, vol 1, page 134` \
+`Tarikh ul-Khulafa, by Suyuti, page 142`
+
+**Umar:** \
+I wish I was a sheep belonging to my family, so that they would fatten me, and when they get an important guest, they would behead me, and make food with me, and eat me, and in the end I would come out as feces, and I was never a person! \
+`Tarikh Madinah Damishq, by Ibn Asakir, vol 30, page 331, and vol 50, page 172` \
+`Minhaj us Sunnah, by Ibn Tayimiyah, vol 3, page 131` \
+`Jami' ul-Ahadith, by Suyuti, vol 13, page 312`
+
+**Allah (swt):** \
+Indeed, the supporters of Allah, they have nothing to fear, nor to grieve. \
+`Surah Yunus, verse 62`
+
+#
+
+Uthman said that he will say every "bad thing" that comes to mind to these two "Fitna makers" (Aisha and Hafsa). \
+`Musannaf Abd-ur-Razzaq, vol 11, page 356` \
+`Jami' Mu'ammar ibn Rashid, vol 11, page 355`

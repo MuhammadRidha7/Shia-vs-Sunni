@@ -8,6 +8,7 @@ Feel free to contact me.
 2. [Rank of The Ahl al-Bayt](#rank-of-the-ahl-al-bayt)
 3. [The issue of Fadak](#the-issue-of-fadak)
 4. [The attack on the house of Fatima](#the-attack-on-the-house-of-fatima)
+5. [The severity of the wrath of Fatima](#the-severity-of-the-wrath-of-fatima)
 
 # Intro
 
@@ -28,7 +29,7 @@ The Prophet (s) gathered Ali, Fatima, Hasan and Husayn under a cloak, then made 
 
 This event has also been mentioned in `Sahih Muslim, vol 7, page 130, hadith 6414`, but with less details.
 
-Umm Salama asked The Prophet (s), "Am I not among you Ahl al-Bayt?", to which The Prophet (s) responded: You're a good person, and you're among the wives (and that is enough for you). \
+Umm Salama asked The Prophet (s), "Am I not among you Ahl al-Bayt?", to which The Prophet (s) responded: You're a good person, and you're among the wives. \
 `Tafsir Durr ul-Manthur, by Suyuti, vol 5, page 198` \
 `Tarikh Madina Damishq, by Ibn Asakir, vol 13, page 207` \
 `Tafsir Alusi, vol 22, page 14` \
@@ -101,3 +102,38 @@ More info in other sources: \
 `Aqd ul-Farid, vol 3, page 63` \
 `Al-Wafi bil-Wafiyat, vol 5, page 347` \
 `Tarikh Abul Fada, vol 1, page 156`
+
+# The severity of the wrath of Fatima
+
+**The Prophet (s):** \
+Fatima is a part of me and her wrath is my wrath. \
+`Sahih Bukhari, hadith 3714` \
+`Sahih Muslim, hadith 6202`
+
+To those who say The Prophet (s) was saying this just out of love, Allah (swt) has said: \
+And he does not speak out of desire. \
+`Surah an-Najm, verse 3`
+
+**The Prophet (s) told Fatima:** \
+Allah gets angry by your anger and gets pleased by your pleasure. \
+`Mustadrak, vol 3, page 153`
+
+**Allah (swt):** \
+Indeed, those who annoy Allah and His Messenger, Allah has cursed them in this world and in the hereafter, and has prepared for them a humiliating punishment. \
+`Surah al-Ahzab, verse 57`
+
+If Fatima was an unreasonable person, her wrath would not be the wrath of Allah, so her anger is controlled and directed at those who deserve it the most.
+
+**Fatima told Abu Bakr:** \
+By Allah, I will complain to Allah about you. By Allah, I will not speak to you again. \
+`Ansab al-Ashraf, vol 3, page 316` \
+`Saqifah wa Fadak, page 104`
+
+Fatima was angered by Abu Bakr and did not speak to him until her death. \
+`Sahih Bukhari, hadith 3093`
+
+Fatima left in her will that Abu Bakr may not pray upon her, so she was buried nightly, and Abbas prayed. \
+`Saqifah wa Fadak, page 104`
+
+Ali buried Fatima nightly without informing Abu Bakr. \
+`Sahih Bukhari, hadith 4240`

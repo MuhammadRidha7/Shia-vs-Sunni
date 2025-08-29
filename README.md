@@ -17,6 +17,8 @@ Feel free to contact me.
 11. [The Quran repeatedly blames Aisha and Hafsa](#the-quran-repeatedly-blames-aisha-and-hafsa)
 12. [Aren't Abu Bakr and Umar buried next to The Prophet (s)?](#arent-abu-bakr-and-umar-buried-next-to-the-prophet-s)
 13. [Did Ali name three of his sons Abu Bakr, Umar and Uthman?](#did-ali-name-three-of-his-sons-abu-bakr-umar-and-uthman)
+14. [Isn't Tawassul shirk?](#isnt-tawassul-shirk)
+15. [The reality of Taqiyya](#the-reality-of-taqiyya)
 
 # Intro
 
@@ -26,7 +28,8 @@ There are some so-called "Shi'as" who equate The Ahl al-Bayt (s) with Allah (swt
 
 # Rank of The Ahl al-Bayt
 
-**"Allah only wills to purify you of impurity, O Ahl al-Bayt! and purify you thoroughy."** \
+**Allah (swt):** \
+Allah only wills to purify you of impurity, O Ahl al-Bayt! and purify you thoroughy. \
 `Surah al-Ahzab, verse 33`
 
 Before we discuss the implications of this verse, we will examine who it is about. \
@@ -161,7 +164,7 @@ As we discussed in section 2, The Quran proves the infallibility of Fatima, so i
 # Aisha's animosity against The Ahl al-Bayt
 
 **Allah (swt):** \
-"Say, I do not ask you for a reward, other than to love my near of kin." \
+Say, I do not ask you for a reward, other than to love my near of kin. \
 `Surah ash-Shura, verse 23`
 
 **Abu Bakr:** \
@@ -406,6 +409,10 @@ In zina, the man is always the top and the woman is always the bottom, but since
 Hasn't Allah forbidden you from praying for Munafiqin? The Prophet (s) ignored him. \
 `Sahih Muslim, vol 8, page 120`
 
+**Allah (swt):** \
+And whoever defies the Messenger after guidance has become clear to them and follows a path other than that of the believers, We will let them pursue what they have chosen, then burn them in Hell—what an evil end! \
+`Surah an-Nisa, verse 115`
+
 Another instance of Umar condemning The Prophet (s): `Sahih Muslim, vol 1, page 59`
 
 #
@@ -436,7 +443,7 @@ Uthman said that he will say every "bad thing" that comes to mind to these two "
 # Aren't the wives the mothers of the believers and unlike any other women?
 
 **Allah (swt):** \
-"And his wives are their mothers." \
+And his wives are their mothers. \
 `Surah al-Ahzab, verse 6`
 
 This verse was revealed to make the Arabs understand that they should not marry the wives of The Prophet (s) after his death. In fact, the wives are only the mother of the men, because the women can't marry the wives in the first place! \
@@ -453,15 +460,17 @@ A woman came to Aisha and called her "mother", to which Aisha responded that she
 And MANY more sources!
 
 **Allah (swt):** \
-"You are unlike any other women." \
+You are unlike any other women. \
 `Surah al-Ahzab, verse 32`
 
 This is referring to the special responsibilities that only the wives of The Prophet (s) have, such as always staying in their houses, and never marrying anyone after the passing of The Prophet (s). Because, The Quran says in Surah at-Tahreem that the hearts of two of the wives has deviated, while Fatima is infallible as we proved earlier, so all of the wives cannot superior to Fatima, so this verse cannot be regarding the virtues of the wives. Additionally, The Prophet (s) used to call Fatima, "Umm Abiha", meaning "The mother of The Prophet (s)", to show people that she is superior to "Mothers of the believers".
 
+And regarding the 33rd verse of Surah al-Ahzab, we examined that in section 2.
+
 # Hasn't The Quran praised the Sahaba?
 
 **Allah (swt):** \
-"The foremost of the first of the Muhajirin and Ansar, and those who follow them well, Allah is pleased of them and they are pleased of him." \
+The foremost of the first of the Muhajirin and Ansar, and those who follow them well, Allah is pleased of them and they are pleased of him. \
 `Surah at-Taubah, verse 100`
 
 Allah is not saying the first of the sahaba, but the best ones among the first ones, so it does not include just anyone.
@@ -476,6 +485,8 @@ This cannot include all of the sahaba, as many of them went back to their jahili
 `Fath ul-Bari, by Ibn Hajar, vol 11, page 475` \
 `Umdat ul-Qari, vol 23, page 135 and page 142`
 And more sources...
+
+And regarding the 11th verse of Surah al-Anfal, we discussed that in section 2.
 
 # The Quran repeatedly blames Aisha and Hafsa
 
@@ -540,3 +551,47 @@ From among the Sahaba, there were more than 20 who were "Uthman". \
 `Al-Isabah fit-Tamyiz is-Sahaba, by Ibn Hajar, vol 4, page 370` \
 `Usd ul-Ghaba, by Ibn Athir, vol 2, page 472` \
 And the son of Affan became the most famous of them all.
+
+# Isn't Tawassul shirk?
+
+Allah is greater than anything we can imagine, that's why we say "Allahu Akbar". \
+If you limit Allah's greatness to being able to hear all people and understand all languages, then you've committed disbelief. \
+One who thinks The Ahl al-Bayt would be rivaling Allah by simply being able to hear everyone has some serious issues in their understanding of Allah.
+
+**Bilal went to the grave of The Prophet (s) and said:** \
+O Messenger of Allah! The people are perishing from the lack of water! \
+So The Prophet (s) came to him in a dream and said: Go to Umar and give him the news of rain. He did, and Umar cried. \
+`Musannaf, vol 11, page 118, hadith 32538` \
+(Confirmed by Ibn Kathir, Ibn Hajar, etc.)
+
+# The reality of taqiyya
+
+It's worth noting that Taqiyah is specifically about being threatened to get killed if you don't claim to have quit Islam.
+
+**Allah (swt):** \
+Those who become kafer after their belief, except those who are forced, while their heart is believing. \
+`Surah an-Nahl, ayah 106`
+
+**Allah (swt):** \
+And a believer from the kinsmen of Fir'oun who was hiding his belief. \
+`Surah al-Ghafir, ayah 28`
+
+He who does not have Taqiyyah, does not have belief. \
+`Musannaf, vol 6, page 474, hadith 33045`
+
+**The Prophet (s):** \
+Allah has taken away from my Ummah (the punishment of) errors, forgetting, and what is forced. \
+`Sunan Ibn Majah, vol 1, page 659`
+
+**Abu Hurayrah:** \
+I know hadiths that I could not say during the time of Umar or else he would behead me! \
+`Siyar A'lam an-Nubala, vol 2, page 601` \
+`Tarikh Madinah Damishq, by Ibn Asakir, vol 67, page 343` \
+`Al-Bidayah wan-Nihayah, vol 8, page 107`
+
+**Ibn Mas'ud:** \
+If I can escape one lash (of a whip) by saying something, I will say it. \
+`Mahali Ibn Hazm, vol 8, page 336`
+
+If a murderer asks about the location of a person, or a thief asks about the location of a thing, not only is it halal to say "I don't know" but it is wajib! \
+`Sharh an Nabawi ala Sahih Muslim, vol 15, page 124 and vol 16, page 158`

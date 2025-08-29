@@ -12,17 +12,20 @@ Feel free to contact me.
 6. [If Abu Bakr was the righteous caliph, then Fatima died as a kafer](#if-abu-bakr-was-the-righteous-caliph-then-fatima-died-as-a-kafer)
 7. [Aisha's animosity against The Ahl al-Bayt](#aishas-animosity-against-the-ahl-al-bayt)
 8. [More info on the characters of Abu Bakr and Umar](#more-info-on-the-characters-of-abu-bakr-and-umar)
-9. [Aren't the wives the mothers of the believers and unlike any other women?](#arent-the-wives-the-mothers-of-the-believers-and-unlike-any-other-women)
-10. [Hasn't The Quran praised the Sahaba?](#hasnt-the-quran-praised-the-sahaba)
-11. [The Quran repeatedly blames Aisha and Hafsa](#the-quran-repeatedly-blames-aisha-and-hafsa)
-12. [Aren't Abu Bakr and Umar buried next to The Prophet (s)?](#arent-abu-bakr-and-umar-buried-next-to-the-prophet-s)
-13. [Did Ali name three of his sons Abu Bakr, Umar and Uthman?](#did-ali-name-three-of-his-sons-abu-bakr-umar-and-uthman)
-14. [Isn't Tawassul shirk?](#isnt-tawassul-shirk)
-15. [The reality of Taqiyya](#the-reality-of-taqiyya)
+9. [How the "righteous Salaf" treated Uthman](#how-the-righteous-salaf-treated-uthman)
+10. [Aren't the wives the mothers of the believers and unlike any other women?](#arent-the-wives-the-mothers-of-the-believers-and-unlike-any-other-women)
+11. [Hasn't The Quran praised the Sahaba?](#hasnt-the-quran-praised-the-sahaba)
+12. [The Quran repeatedly blames Aisha and Hafsa](#the-quran-repeatedly-blames-aisha-and-hafsa)
+13. [Aren't Abu Bakr and Umar buried next to The Prophet (s)?](#arent-abu-bakr-and-umar-buried-next-to-the-prophet-s)
+14. [Did Ali name three of his sons Abu Bakr, Umar and Uthman?](#did-ali-name-three-of-his-sons-abu-bakr-umar-and-uthman)
+15. [Why Didn't Ali take Fadak back?](#why-didnt-ali-take-fadak-back)
+16. [The reality of Tawassul and Taqiyya](#the-reality-of-tawassul-and-taqiyya)
+17. [Shi'a Salah and Wudhu are Sunnah](#shia-salah-and-wudhu-are-sunnah)
+18. [Sunni beliefs have been corrupted](#sunni-beliefs-have-been-corrupted)
 
 # Intro
 
-Some say Shi'as lie about Shi'a beliefs to spread Shi'a beliefs. This doesn't logically hold up. If I tell you that Shi'as believe such-and-such while we actually don't, then even if you believe in it, you still haven't become a Shi'a because you started believing something that is not part of Shi'a beliefs. That being said, I'm going to present Sahih/Hasan Sunni narrations, verses of The Quran, and straightforward logic.
+Some say Shi'as lie about Shi'a beliefs to spread Shi'a beliefs. This doesn't logically hold up. If I tell you that Shi'as believe such-and-such while we actually don't, then even if you believe in it, you still haven't become a Shi'a because you started believing something that is not part of Shi'a beliefs. That being said, I'm only going to Sunni narrations, verses of The Quran, and straightforward logic.
 
 There are some so-called "Shi'as" who equate The Ahl al-Bayt (s) with Allah (swt) himself! This is blatant kufr! They are a minority and they do not represent the actual Shi'as. I wish these people would go be their own sect instead of attaching themselves to us. A certain group loves to make these people look like they have more followers than they actually do.
 
@@ -46,6 +49,22 @@ Umm Salama asked The Prophet (s), "Am I not among you Ahl al-Bayt?", to which Th
 `Tafsir Alusi, vol 22, page 14` \
 `Jami' ul-Bayan Tarabi, vol 22, page 11 and 13` \
 And many more sources.
+
+Whenever The Prophet (s) entered the house of Fatima, he would say: \
+Assalam alaykum Ahl al-Bayt wa rahmatullah wa barakatuh \
+Then, he would recite the ayah of purification. \
+`Majma uz-Zawa'id, by Haytham, vol 9, page 169`
+
+Whenever The Prophet (s) passed by the house of Fatima, he would recite the ayah of purification three times. \
+`Shawahid ut-Tanzil, vol 2, page 20`
+
+Some say The Prophet (s) has said the same thing when passing by the house of Aisha, but that just shows contradictions in authentic Sunni sources:
+
+The Prophet (s) pointed at the house of Aisha and said: Fitna is here! Fitna is here! The horn of Satan will rise from here! \
+`Sahih Bukhari, vol 4, page 82`
+
+The Prophet (s) pointed at the house of Aisha and said: The head of kufr is here, and the horn of Satan will appear here! \
+`Sahih Muslim, vol 4, page 2229`
 
 Now, onto the implications of this purification. \
 Allah has 2 wills, a "Tashri'i" will, and a "Takwini" will, and this is something Sunni scholars accept. \
@@ -192,7 +211,7 @@ When Fatima passed away, Aisha said something that expressed her joy at the deat
 Aisha could not think of Ali nicely. \
 `Musnad Ahmad, vol 6, page 228, hadith 25956` \
 `Fath ul-Bari, by Ibn Hajar, vol 2, page 156` \
-`Umdat ul Qari, vol 5, page 192`
+`Umdat ul-Qari, vol 5, page 192`
 
 Aisha said: When the sickness of The Prophet (s) worsened, he would be carried around by Abbas and another person, while his feet would touch the ground. Ibn Abbas asked Ubaydullah: Do you know who that other person was? Ubaydullah said no. Ibn Abbas said: He was Ali ibn Abi Talib. \
 `Sahih Bukhari, vol 1, page 83` \
@@ -207,6 +226,10 @@ Aisha was delighted to hear the news of the death of Ali. \
 
 Aisha performed Sijda upon hearing the news of the death of Ali. \
 `Maqatil ut-Talibin, vol 1, page 11`
+
+Mu'awiya did the exact same thing for Hasan: \
+Muawiya was delighted to hear the news of Hasan's death and performed Sijda. \
+`Mukhtasar fi Akhbar ul-Bashar, by Abul Fada, vol 1, page 183`
 
 #
 
@@ -239,6 +262,10 @@ Similar occasions: \
 **Aisha:** \
 The Prophet (s) gestured to us not to feed him medicine, but since sick people hate medicine, we fed him anyway. He later told us: Everyone in the house should be fed this 'medicine' except Abbas who was not present to see what you were up to. \
 `Sahih Bukhari, vol 4, page 1618, hadith 4189`
+
+**The Prophet (s) told Aisha:** \
+I hope it (her death) happens and I would be alive so that I would be able to ask for forgiveness for you! Aisha responded: You just want me to die... \
+`Sahih Bukhari, vol 9, page 80`
 
 # More info on the characters of Abu Bakr and Umar
 
@@ -370,6 +397,18 @@ Ash'ath ibn Qays said that he was invited over to Umar's house, and he beat up h
 
 #
 
+**Umar:** \
+If not for Ali, Umar would have perished and gone astray! \
+`Sharh Nahj ul-Balagha, by Ibn Abil Hadid, vol 1, page 18, and vol 12, page 179` \
+`Yanabi ul-Mawadda, vol 1, page 216, and vol 2, page 172, and vol 3, page 147` \
+`Ta'wil Mukhtalif ul-Hadith, by Ibn Qutaybah, vol 1, page 162` \
+`Tafsir Sam'ani, vol 5, page 154`
+
+Umar would seek refuge in Allah out of fear of Ali not being present to solve any of his future problems. \
+`Fath ul-Bari, by Ibn Hajar, vol 13, page 286`
+
+#
+
 **The Prophet (s) told Abu Bakr:** \
 Indeed, Shirk is hidden inside you. Abu Bakr asked: Is shirk other than worshipping other than Allah? \
 The Prophet (s) repeated: By him, who my life is in the hand of, shirk is hidden within you! \
@@ -434,10 +473,19 @@ I wish I was a sheep belonging to my family, so that they would fatten me, and w
 Indeed, the supporters of Allah, they have nothing to fear, nor to grieve. \
 `Surah Yunus, verse 62`
 
-#
+# How the "righteous Salaf" treated Uthman
 
-Uthman said that he will say every "bad thing" that comes to mind to these two "Fitna makers" (Aisha and Hafsa). \
-`Musannaf Abd-ur-Razzaq, vol 11, page 356` \
+Uthman's corpse was rotting among trash for days and no one cared, on the 4th night, his cousin, Marwan ibn Hakam, and 11 others, none of which were from the sahaba, gathered to take him to a graveyard, but someone said: By Allah! If you bury him here, I will inform the people so that they would come and dig him up! So they took him to a Jewish graveyard, and he was buried there. \
+`Istee'ab, vol 3, page 80`
+
+Muawiya commanded the wall separating Baqi and that Jewish graveyard to be broken and to keep burying Muslims near him until his grave was connected to Baqi. \
+`Tarikh Tabari, vol 2, page 687`
+
+This shows how little Ali and other sahaba cared about Uthman, they did nothing for him. \
+In fact, even Aisha and Hafsa were on bad terms with Uthman:
+
+Uthman said that he will say every "bad thing" that comes to mind to these two "Fitna makers". \
+`Musannaf Abdurrazzaq, vol 11, page 356` \
 `Jami' Mu'ammar ibn Rashid, vol 11, page 355`
 
 # Aren't the wives the mothers of the believers and unlike any other women?
@@ -552,7 +600,24 @@ From among the Sahaba, there were more than 20 who were "Uthman". \
 `Usd ul-Ghaba, by Ibn Athir, vol 2, page 472` \
 And the son of Affan became the most famous of them all.
 
-# Isn't Tawassul shirk?
+# Why didn't Ali take Fadak back?
+
+Even after conquering Mecca, The Prophet Muhammad (s) did not take back what was taken from him and the Muslims.
+
+In Shi'a sources we have:
+
+Imam Sadiq: \
+We are a family who do not take back what is taken from us.
+
+Imam Kadhim: \
+Our wali is Allah and he brings us justice. We are the wali of people and we bring them justice. But we do not avenge ourselves.
+
+Even if this wasn't the case, Ali still wouldn't take back Fadak because the majority of people would be against it, the same way he was against Taraweeh but didn't deny those who wanted to pray it, the same way he chose Malik Ashtar but people chose Abu Musa Ash'ari.
+
+People picked an Imam for Taraweeh despite Ali being against it, when the news of this reached him, he sent Hasan to advise them against it, so the people yelled out: Oh God! They wish to destroy the sunnah of Umar! \
+`Sharh Nahj ul-Balagha, by Ibn Abil Hadid, vol 12, page 282`
+
+# The reality of Tawassul and Taqiyya
 
 Allah is greater than anything we can imagine, that's why we say "Allahu Akbar". \
 If you limit Allah's greatness to being able to hear all people and understand all languages, then you've committed disbelief. \
@@ -564,7 +629,7 @@ So The Prophet (s) came to him in a dream and said: Go to Umar and give him the 
 `Musannaf, vol 11, page 118, hadith 32538` \
 (Confirmed by Ibn Kathir, Ibn Hajar, etc.)
 
-# The reality of taqiyya
+#
 
 It's worth noting that Taqiyah is specifically about being threatened to get killed if you don't claim to have quit Islam.
 
@@ -595,3 +660,68 @@ If I can escape one lash (of a whip) by saying something, I will say it. \
 
 If a murderer asks about the location of a person, or a thief asks about the location of a thing, not only is it halal to say "I don't know" but it is wajib! \
 `Sharh an Nabawi ala Sahih Muslim, vol 15, page 124 and vol 16, page 158`
+
+# Shi'a Salah and Wudhu are Sunnah
+
+The Prophet (s)'s and Ali's wudhu: \
+`Musnad Ahmad, vol 2, page 139 and vol 3, page 291` \
+`Musnad at-Tialasi, hadith 139`
+
+The Prophet (s) would sometimes pray Dhuhr and Asr together and Maghrib and Isha together. \
+`Sahih Muslim, vol 1, page 489, and hadith 327` \
+`Sunan Abu Dawud, vol 2, page 6` \
+`Musnad Ahmad, vol 3, page 280, hadith 1918 and vol 3, page 283, hadith 1929`
+
+**Ibn Abbas:** \
+The Prophet (s) did as such while he was not worried of anything nor was there rain. \
+`Sahih Muslim, vol 1, page 490` \
+`Sunan Tirmidhi, vol 1, page 354, hadith 187` \
+`Sunan Abu Dawud, vol 2, page 6, hadith 1211` \
+`Sunan Nisa'i, vol 1, page 315, hadith 601` \
+`Musnad Ahmad, vol 5, page 81, hadith 3235` \
+
+**Imam Malik:** \
+The Sunnah is to pray without holding your hands. \
+`Tuhfat ul Fuqaha, vol 1, page 126`
+
+# Sunni beliefs have been corrupted
+
+**Quran:**
+
+**Aisha:** \
+The ayah for stoning someone to death and the ayah for breastfeeding to an elder were under my bed, but a goat came and ate it! \
+`Sunan Ibn Majah, vol 6, page 72`
+
+**Aisha:** \
+There was an ayah in The Quran saying if a kid drinks a woman's milk 5 times, they become mahram, and this ayah was still in The Quran when The Prophet (s) died. \
+`Sahih Muslim, hadith 3487`
+
+**Umar:** \
+The Quran that was given to The Prophet (s) had 11 million letters. \
+`Durr ul-Manthur, by Suyuti, vol 6, page 422`
+`Jami' us-Saghir, by Suyuti, vol 2, page 264`
+`Itqan us-Suyuti, vol 1, page 121`
+`Majma' uz-Zawa'id, by Haythami, vol 7, page 163`
+`Mu'jam al-Ausat, by Tabarani, vol 6, page 361`
+
+**Ibn Mas'ud:** \
+Surah an-Nas and al-Falaq are not part of The Quran. \
+`Musnad Ahmad, vol 35, page 117, hadith 21188`
+
+**Ibn Mas'ud:** \
+During the life of The Prophet (s) we would recite `Surah al-Ma'idah, ayah 67` as such: O Messenger! Deliver that which has been sent down to you from your Lord, that Ali is the Maula of Mu'minin, and if you do not, you will not have communicated His message, and Allah shall protect you from the people. Indeed Allah does not guide the faithless lot. \
+`Durr ul-Manthur, vol 3, page 117`
+
+Our narrations regarding the corruption of The Quran are uncountable. \
+`Ruh ul-Ma'ani, vol 1, page 24`
+
+**Sunnah:**
+
+By Allah! Nothing remains from the Sunnah of Muhammad (s) other than them praying together! \
+`Sahih Bukhari, hadith 622`
+
+I do not see anything remaining of the Sunnah of The Prophet (s). \
+`Sahih Bukhari, hadith 506`
+
+All of the Sunnah of The Prophet (s) has been destroyed, except salah, but now, that too, has been destroyed. \
+`Sahih Bukhari, hadith 507`

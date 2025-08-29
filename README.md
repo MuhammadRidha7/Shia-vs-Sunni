@@ -1,5 +1,7 @@
 All sources used are Sunni sources. \
-If you would like to communicate: muhammadridha1024@gmail.com
+Email: `muhammadridha1024@gmail.com` \
+Discord: `@muhammad.ridha` \
+Feel free to contact me.
 
 # Table of Contents
 1. [Intro](#intro)

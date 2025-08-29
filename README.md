@@ -14,6 +14,9 @@ Feel free to contact me.
 8. [More info on the characters of Abu Bakr and Umar](#more-info-on-the-characters-of-abu-bakr-and-umar)
 9. [Aren't the wives the mothers of the believers and unlike any other women?](#arent-the-wives-the-mothers-of-the-believers-and-unlike-any-other-women)
 10. [Hasn't The Quran praised the Sahaba?](#hasnt-the-quran-praised-the-sahaba)
+11. [The Quran repeatedly blames Aisha and Hafsa](#the-quran-repeatedly-blames-aisha-and-hafsa)
+12. [Aren't Abu Bakr and Umar buried next to The Prophet (s)?](#arent-abu-bakr-and-umar-buried-next-to-the-prophet-s)
+13. [Did Ali name three of his sons Abu Bakr, Umar and Uthman?](#did-ali-name-three-of-his-sons-abu-bakr-umar-and-uthman)
 
 # Intro
 
@@ -189,7 +192,9 @@ Aisha could not think of Ali nicely. \
 `Umdat ul Qari, vol 5, page 192`
 
 Aisha said: When the sickness of The Prophet (s) worsened, he would be carried around by Abbas and another person, while his feet would touch the ground. Ibn Abbas asked Ubaydullah: Do you know who that other person was? Ubaydullah said no. Ibn Abbas said: He was Ali ibn Abi Talib. \
-`Sahih Bukhari, vol 1, page 83`
+`Sahih Bukhari, vol 1, page 83` \
+`Musnad Ahmad, vol 43, page 86` \
+`Tabaqat al-Kubra, vol 2, page 179`
 
 Aisha was delighted to hear the news of the death of Ali. \
 `Tarikh Tabari, vol 3, page 159` \
@@ -471,3 +476,67 @@ This cannot include all of the sahaba, as many of them went back to their jahili
 `Fath ul-Bari, by Ibn Hajar, vol 11, page 475` \
 `Umdat ul-Qari, vol 23, page 135 and page 142`
 And more sources...
+
+# The Quran repeatedly blames Aisha and Hafsa
+
+Surah at-Tahreem blames Aisha and Hafsa according to: \
+`Sahih Bukhari, vol 5, page 4964, hadith 4966` \
+However, a lot of Sunnis turn a blind eye and ignore their own most authentic book, out of biased love for Aisha.
+
+The 11th verse of Surah al-Hujurat, saying "And do not let some women ridicule others, they may be better than them" was revealed after Aisha and Hafsa ridiculed Umm Salama. \
+`Ruh ul Ma'ani, by Alusi, vol 6, page 152` \
+`Jami' li Ahkam il-Quran, by Qurtubi, vol 16, page 326` \
+`Tafsir Maqatil Sulayman, vol 3, page 262`
+
+The verses of Ifk, the one purifying the wife of The Prophet (s), is not about Aisha being accused, but Maria: \
+**Aisha narrates:** \
+The Prophet (s) asked me if his son, Ibrahim (son of Maria), looked like him, and I, out of jealousy, said no, and as such, the people spread rumors. \
+`Mustadrak, vol 4, page 39` \
+Another source, `Sahih Muslim, vol 8, page 119`, does not name the wife, but its similarity to this one confirms it. This also shows how much Sunni authors try to protect Aisha!
+
+# Aren't Abu Bakr and Umar buried next to The Prophet (s)?
+
+Abu Bakr left in her will to Aisha to be buried next to The Prophet (s). \
+`Tarikh Tabari, vol 4, page 1565`
+
+Umar sent someone to Aisha to tell her to bury him next to The Prophet (s). \
+`Tabaqat al-Kubra, vol 3, page 363` \
+`Tarikh Madina Damishq, by Ibn Asakir, vol 44, page 446`
+
+Regarding the burial of Hasan next to The Prophet (s): \
+**Aisha said:** \
+This is my house and I will not allow. \
+`Tarikh Ya'qubi, vol 2, page 225`
+
+As shown in section 3, The Ahl al-Bayt persistently considered Abu Bakr and Umar as sinful deceitful lying traitors, \
+and as shown in section 4, narration from Ibn Abi Darim, either Umar kicked Fatima and caused her miscarriage, or the 6 Sahih books of Ahl Sunnah are unreliable. \
+And as shown in section 11, Sahih Bukhari says the wives whose hearts has deviated are Aisha and Hafsa. \
+So Abu Bakr and Umar being buried next to The Prophet (s) is just physical closeness and does not indicate spiritual closeness. \
+As shown in section 2, Hasan was an infallible from The Ahl al-Bayt, and yet he was denied from being buried next to The Prophet (s).
+
+# Did Ali name three of his sons Abu Bakr, Umar and Uthman?
+
+Firstly, "Abu Bakr" is a kunya, and not a name. \
+The name of Abu Bakr ibn Abu Quhafa is Abdullah ibn Uthman. \
+And the name of Abu Bakr ibn Ali is Muhammad Asghar ibn Ali. \
+Arabs call someone whose beard does not have a high hair density, "Abu Bakr".
+Many of the Sahaba were "Abu Bakr", but the son of Abu Quhafa became the most famous of them all.
+
+Secondly, Umar used to rename a lot of people. \
+He renamed "Ibrahim ibn Harith" to Abdullah and "Ajda' ibn Malik" to Abdurrahman. \
+`Al-Isabah fit-Tamyiz is-Sahaba, by Ibn Hajar, vol 1, page 330` \
+When Ali had a son during the caliphate of Umar, Umar put his own name on the son of Ali. \
+`Siyar A'lam an-Nubala, by Dhahabi, vol 4, page 134` \
+Isa ibn Abdullah, a descendant of Umar ibn Ali, says it was not Ali who named his son Umar. \
+`Tarikh Madina Damishq, by Ibn Asakir, vol 45, page 304` \
+Even if it was Ali who named his son Umar, there were more than 20 of the Sahaba who were "Umar". \
+`Usd ul-Ghaba, by Ibn Athir, vol 3, page 640` \
+`Al-Isabah fit-Tamyiz is-Sahaba, by Ibn Hajar, vol 4, page 483`
+
+Thirdly, it has been narrated in Sunni sources that Ali named his son "Uthman" out of sheer love "Uthman ibn Madh'un" who was killed in the battle of Badr during the lifetime of The Prophet (s). \
+`Tarikh Madina Damishq, by Ibn Asakir, vol 45, page 304` \
+And even if this narration had not reached our hands, there still isn't a reason to say Ali named his son after Uthman ibn Affan. \
+From among the Sahaba, there were more than 20 who were "Uthman". \
+`Al-Isabah fit-Tamyiz is-Sahaba, by Ibn Hajar, vol 4, page 370` \
+`Usd ul-Ghaba, by Ibn Athir, vol 2, page 472` \
+And the son of Affan became the most famous of them all.

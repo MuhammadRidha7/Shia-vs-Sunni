@@ -12,6 +12,8 @@ Feel free to contact me.
 6. [If Abu Bakr was the righteous caliph, then Fatima died as a kafer](#if-abu-bakr-was-the-righteous-caliph-then-fatima-died-as-a-kafer)
 7. [Aisha's animosity against The Ahl al-Bayt](#aishas-animosity-against-the-ahl-al-bayt)
 8. [More info on the characters of Abu Bakr and Umar](#more-info-on-the-characters-of-abu-bakr-and-umar)
+9. [Aren't the wives the mothers of the believers and unlike any other women?](#arent-the-wives-the-mothers-of-the-believers-and-unlike-any-other-women)
+10. [Hasn't The Quran praised the Sahaba?](#hasnt-the-quran-praised-the-sahaba)
 
 # Intro
 
@@ -183,7 +185,7 @@ When Fatima passed away, Aisha said something that expressed her joy at the deat
 
 Aisha could not think of Ali nicely. \
 `Musnad Ahmad, vol 6, page 228, hadith 25956` \
-`Fat-h ul-Bari, by Ibn Hajar, vol 2, page 156` \
+`Fath ul-Bari, by Ibn Hajar, vol 2, page 156` \
 `Umdat ul Qari, vol 5, page 192`
 
 Aisha said: When the sickness of The Prophet (s) worsened, he would be carried around by Abbas and another person, while his feet would touch the ground. Ibn Abbas asked Ubaydullah: Do you know who that other person was? Ubaydullah said no. Ibn Abbas said: He was Ali ibn Abi Talib. \
@@ -211,7 +213,7 @@ I have now realized that you love Ali more than me and my father! And she repeat
 `Sunan Abu Dawud, vol 4, page 300` \
 `Musnad Ahmad, vol 30, pages 372-373` \
 `Sunan al Kubra, vol 7, page 488` \
-`Fat-h ul Bari, vol 7, page 27`
+`Fath ul Bari, vol 7, page 27`
 
 There are other instances of Aisha yelling at The Prophet (s), refer to `Sunan Abu Dawud, vol 4, page 300`.
 
@@ -322,7 +324,7 @@ Sa'd ibn Abi Waqqas was the first person to say "As-Salat khayrun min-an-noum", 
 #
 
 Abu Bakr and Umar would drink even after it became haram. \
-`Fat-h ul-Bari, by Ibn Hajar, vol 10, page 37` \
+`Fath ul-Bari, by Ibn Hajar, vol 10, page 37` \
 `Sunan al Kubra, vol 8, page 519` \
 In fact, some Salafi scholars say that drinking is not haram because the sahaba used to engage in it, for example: \
 `Ruh ul-Ma'ani, by Alusi, vol 1, page 509` \
@@ -425,3 +427,47 @@ Indeed, the supporters of Allah, they have nothing to fear, nor to grieve. \
 Uthman said that he will say every "bad thing" that comes to mind to these two "Fitna makers" (Aisha and Hafsa). \
 `Musannaf Abd-ur-Razzaq, vol 11, page 356` \
 `Jami' Mu'ammar ibn Rashid, vol 11, page 355`
+
+# Aren't the wives the mothers of the believers and unlike any other women?
+
+**Allah (swt):** \
+"And his wives are their mothers." \
+`Surah al-Ahzab, verse 6`
+
+This verse was revealed to make the Arabs understand that they should not marry the wives of The Prophet (s) after his death. In fact, the wives are only the mother of the men, because the women can't marry the wives in the first place! \
+A woman came to Aisha and called her "mother", to which Aisha responded that she is not her mother, but the mother of the men. \
+`Tafsir Durr ul-Manthur, by Suyuti, vol 6, page 566` \
+`Sunan Bayhaqi, vol 7, pages 69-70` \
+`Ansab al-Ashraf, vol 3, page 201` \
+`Khasa'is ul-Kubra, by Suyuti, vol 2, page 438` \
+`Tabaqat ul-Kubra, vol 8, page 65 and page 68 and page 201` \
+`Jami' li Ahkam il-Quran, by Qurtubi, vol 14, page 228` \
+`Jami' ul-Bayan, by Tabari, vol 21, page 122` \
+`Ahkam al-Quran, by Ibn Arabi, vol 3, page 542` \
+`Tafsir Bahr ul-Ulum, vol 3, page 42 and page 66`
+And MANY more sources!
+
+**Allah (swt):** \
+"You are unlike any other women." \
+`Surah al-Ahzab, verse 32`
+
+This is referring to the special responsibilities that only the wives of The Prophet (s) have, such as always staying in their houses, and never marrying anyone after the passing of The Prophet (s). Because, The Quran says in Surah at-Tahreem that the hearts of two of the wives has deviated, while Fatima is infallible as we proved earlier, so all of the wives cannot superior to Fatima, so this verse cannot be regarding the virtues of the wives. Additionally, The Prophet (s) used to call Fatima, "Umm Abiha", meaning "The mother of The Prophet (s)", to show people that she is superior to "Mothers of the believers".
+
+# Hasn't The Quran praised the Sahaba?
+
+**Allah (swt):** \
+"The foremost of the first of the Muhajirin and Ansar, and those who follow them well, Allah is pleased of them and they are pleased of him." \
+`Surah at-Taubah, verse 100`
+
+Allah is not saying the first of the sahaba, but the best ones among the first ones, so it does not include just anyone.
+
+**Allah (swt):** \
+Muḥammad is the Messenger of Allah. And those with him are firm with the disbelievers and compassionate with one another. You see them bowing and prostrating, seeking Allah’s bounty and pleasure. The sign on their faces from the trace of prostrating. This is their description in the Torah. And their parable in the Gospel is that of a seed that sprouts its branches, making it strong. Then it becomes thick, standing firmly on its stem, to the delight of the planters—in this way Allah makes the believers a source of dismay for the disbelievers. To those of them who believe and do good, Allah has promised forgiveness and a great reward. \
+`Surah al-Fath, verse 29`
+
+This cannot include all of the sahaba, as many of them went back to their jahili ways of living upon the death of The Prophet (s). \
+`Sahih Bukhari, hadith 2115 and 6212` \
+`Sahih Muslim, Kitab Fadha'il, bab 9` \
+`Fath ul-Bari, by Ibn Hajar, vol 11, page 475` \
+`Umdat ul-Qari, vol 23, page 135 and page 142`
+And more sources...

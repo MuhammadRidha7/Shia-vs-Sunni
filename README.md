@@ -9,6 +9,8 @@ Feel free to contact me.
 3. [The issue of Fadak](#the-issue-of-fadak)
 4. [The attack on the house of Fatima](#the-attack-on-the-house-of-fatima)
 5. [The severity of the wrath of Fatima](#the-severity-of-the-wrath-of-fatima)
+6. [If Abu Bakr was the righteous caliph, then Fatima died as a kafer](#if-abu-bakr-was-the-righteous-caliph-then-fatima-died-as-a-kafer)
+7. [Aisha's animosity against The Ahl al-Bayt](#aishas-animosity-against-the-ahl-al-bayt)
 
 # Intro
 
@@ -137,3 +139,60 @@ Fatima left in her will that Abu Bakr may not pray upon her, so she was buried n
 
 Ali buried Fatima nightly without informing Abu Bakr. \
 `Sahih Bukhari, hadith 4240`
+
+# If Abu Bakr was the righteous caliph, then Fatima died as a kafer
+
+Whoever has not recognized the Imam of his time, has died a death of jahaliyah. \
+`Sahih Muslim, vol 8, page 107` \
+`Mustadrak, vol 1, page 77 and page 117` \
+`Sahih Ibn Haban, hadith 44` \
+`Sunan Bayhaqi, vol 8, pages 156-157`
+`Musnad Ahmad, vol 4, page 96` \
+`Mu'jam al-Kabir, vol 10, page 350, hadith 10687`
+
+As we discussed in section 2, The Quran proves the infallibility of Fatima, so it cannot be the case that Abu Bakr was the righteous caliph.
+
+# Aisha's animosity against The Ahl al-Bayt
+
+**Allah (swt):** \
+"Say, I do not ask you for a reward, other than to love my near of kin." \
+`Surah ash-Shura, verse 23`
+
+**Abu Bakr:** \
+I saw The Prophet (s), Ali, Fatima, Hasan and Husayn under a tent, he said: O Muslims! I surrender to who surrenders to the people of the tent. I will be at war with who goes to war with them. No one loves us except blessed people born of pure marriage. No one hates us except miserable people born of Zina. \
+`Riyadh un-Nadharah, vol 2, page 489`
+
+**The Prophet (s) told Ali:** \
+If my Ummah pray and fast so much that they become as thin as a bow but they are against you, Allah will throw them into hellfire. \
+`Tarikh Madinah Damishq, by Ibn Asakir, vol 1, page 145, hadith 179` \
+`Fara'id us Simtain, vol 1, page 51, hadith 16`
+
+#
+
+Every day, from the time of the death of The Prophet (s), till the time of the death of Fatima, Aisha would say something hurtful to Ali and Fatima. \
+`Sharh Nahj ul-Balagha, by Ibn Abil Hadid, vol 9, page 198`
+
+When Fatima passed away, Aisha said something that expressed her joy at the death of Fatima. \
+`Sharh Nahj ul-Balagha, by Ibn Abil Hadid, vol 9, page 132 and page 198` \
+`Lisan ul-Mizan, by Ibn Hajar, vol 8, page 189` \
+`Tarikh Ya'qubi, vol 2, page 125` \
+`Al-Wafi bil-Wafiyat, vol 6, page 17`
+
+#
+
+Aisha could not think of Ali nicely. \
+`Musnad Ahmad, vol 6, page 228, hadith 25956` \
+`Fat-h ul-Bari, by Ibn Hajar, vol 2, page 156` \
+`Umdat ul Qari, vol 5, page 192`
+
+Aisha said: When the sickness of The Prophet (s) worsened, he would be carried around by Abbas and another person, while his feet would touch the ground. Ibn Abbas asked Ubaydullah: Do you know who that other person was? Ubaydullah said no. Ibn Abbas said: He was Ali ibn Abi Talib. \
+`Sahih Bukhari, vol 1, page 83`
+
+Aisha was delighted to hear the news of the death of Ali. \
+`Tarikh Tabari, vol 3, page 159` \
+`At-Tabaqat ul-Kubra, vol 3, page 38 and page 40` \
+`Maqatil ut-Talibin, vol 1, page 11` \
+`Kamil fit-Tarikh, vol 3, page 259`
+
+Aisha performed Sijda upon hearing the news of the death of Ali. \
+`Maqatil ut-Talibin, vol 1, page 11`

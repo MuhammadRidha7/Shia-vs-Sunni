@@ -5,13 +5,13 @@ If you would like to communicate: muhammadridha1024@gmail.com
 1. [Intro](#intro)
 2. [Rank of The Ahl al-Bayt](#rank-of-the-ahl-al-bayt)
 3. [The issue of Fadak](#the-issue-of-fadak)
-4. [The attack on the house of Fatima](#the-attack-on-the-house-fatima)
+4. [The attack on the house of Fatima](#the-attack-on-the-house-of-fatima)
 
 # Intro
 
-Some say Shi'as lie about Shi'a beliefs to spread Shi'a beliefs. This doesn't logically hold up. If I tell you that Shi'as believe such-and-such while we actually don't, then even if you believe in it, you still haven't become a Shi'a because you started believing something that is not part of Shi'a beliefs. That being said, I'm only going to present Sahih Sunni narrations, verses of The Quran, and straightforward logic.
+Some say Shi'as lie about Shi'a beliefs to spread Shi'a beliefs. This doesn't logically hold up. If I tell you that Shi'as believe such-and-such while we actually don't, then even if you believe in it, you still haven't become a Shi'a because you started believing something that is not part of Shi'a beliefs. That being said, I'm going to present Sahih/Hasan Sunni narrations, verses of The Quran, and straightforward logic.
 
-There are some so-called "Shi'as" who equate The Ahl al-Bayt (s) with Allah (swt) himself! This is blatant kufr! They are a minority and they do not represent the actual Shi'as. A certain group loves to make these people look like they have more followers than they actually do.
+There are some so-called "Shi'as" who equate The Ahl al-Bayt (s) with Allah (swt) himself! This is blatant kufr! They are a minority and they do not represent the actual Shi'as. I wish these people would go be their own sect instead of attaching themselves to us. A certain group loves to make these people look like they have more followers than they actually do.
 
 # Rank of The Ahl al-Bayt
 
@@ -73,6 +73,8 @@ From the beginning of Abu Bakr's caliphate to his death, Ali considered him a si
 
 # The attack on the house of Fatima
 
+According to `Sahih Bukhari, vol 3, page 1079, hadith 2795`, punishing someone by fire is exclusive to Allah.
+
 Abu Bakr commanded Umar to take Ali, for bay'ah, Umar went to Fatima's house with a fire. Fatima, from behind the door, asked: O son of Khattab! Is it you who wishes to burn my house down? Umar responded: Yes, this will strengthen what your father brought (Islam). \
 `Ansab al-Ashraf, vol 1, page 586`
 
@@ -82,11 +84,8 @@ Abu Bakr sent Umar to get bay'ah from those who had rejected his caliphate, who 
 They set her house on fire and caused Muhsin to be miscarried. \
 `Isbat ul-Wasiyah, page 143`
 
-Umar hit Fatima and caused Muhsin to be miscarried. \
-`Al-Wafi bil-Wafiyat, vol 5, page 347`
-
 Umar kicked Fatima and caused Muhsin to be miscarried. \
-`Lisan ul Mizan, by Ibn Hajar, vol 1, page 268`
+`Lisan ul-Mizan, by Ibn Hajar, vol 1, page 268`
 > Ibn Hajar rejects this hadith by saying Ibn Abi Darim, the person who narrated this, is from Rawafidh, but he is described in `Siyar A'lam an Nubala, vol 15, page 576 and vol 9, page 555` as being a virtuous Imam with a good memory and all of the six sahih books narrate from him. So either the sahih books aren't actually sahih, or Umar kicked Fatima and caused her to miscarry!
 
 **The Prophet (s):** \
@@ -98,8 +97,5 @@ More info in other sources: \
 `Tarikh Tabari, vol 2, page 443` \
 `Musannaf, vol 8, page 572` \
 `Aqd ul-Farid, vol 3, page 63` \
+`Al-Wafi bil-Wafiyat, vol 5, page 347` \
 `Tarikh Abul Fada, vol 1, page 156`
-
-**Allah (swt):** \
-Indeed, those who annoy Allah and His Messenger, Allah has cursed them in this world and in the hereafter, and has prepared for them a humiliating punishment. \
-`Surah al-Ahzab, verse 57`

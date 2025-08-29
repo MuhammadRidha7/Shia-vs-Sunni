@@ -91,7 +91,7 @@ They set her house on fire and caused Muhsin to be miscarried. \
 
 Umar kicked Fatima and caused Muhsin to be miscarried. \
 `Lisan ul-Mizan, by Ibn Hajar, vol 1, page 268`
-> Ibn Hajar rejects this hadith by saying Ibn Abi Darim, the person who narrated this, is from Rawafidh, but he is described in `Siyar A'lam an Nubala, vol 15, page 576 and vol 9, page 555` as being a virtuous Imam with a good memory and all of the six sahih books narrate from him. So either the sahih books aren't actually sahih, or Umar kicked Fatima and caused her to miscarry!
+> Ibn Hajar rejects this hadith by saying Ibn Abi Darim, the person who narrated this, is from Rawafidh, but he is described in `Siyar A'lam an-Nubala, by Dhahabi, vol 15, page 576 and vol 9, page 555` as being a virtuous Imam with a good memory and all of the six sahih books narrate from him. So either the sahih books aren't actually sahih, or Umar kicked Fatima and caused her to miscarry!
 
 **The Prophet (s):** \
 When I saw Fatima, I remembered an event that will happen to her, her right taken away from her, her ribs broken, her child miscarried, while she is yelling out 'Wa Muhammadah!', but no one responds to her. She will be the first of my kinsmen to join me, and she will meet me while she is deeply saddened and martyred. O Allah, curse whoever wronged her, punish who took away her right, and humiliate who has humiliated her, and give eternal hellfire to who shattered her ribs and murdered her unborn child. Angels said Ameen. \
@@ -196,3 +196,35 @@ Aisha was delighted to hear the news of the death of Ali. \
 
 Aisha performed Sijda upon hearing the news of the death of Ali. \
 `Maqatil ut-Talibin, vol 1, page 11`
+
+#
+
+Based on how Aisha treated Ali and Fatima, it should not be surprising to hear that Aisha mistreated The Prophet of Allah (s) as well:
+
+**Allah (swt):** \
+O Believers! Do not speak louder than The Messenger like how you speak with one another, or your deeds will be void while you do not realize. \
+`Surah al-Hujurat, verse 2`
+
+**Aisha yelled at The Prophet (s):** \
+I have now realized that you love Ali more than me and my father! And she repeated herself. \
+`Sunan Abu Dawud, vol 4, page 300` \
+`Musnad Ahmad, vol 30, pages 372-373` \
+`Sunan al Kubra, vol 7, page 488` \
+`Fat-h ul Bari, vol 7, page 27`
+
+There are other instances of Aisha yelling at The Prophet (s), refer to `Sunan Abu Dawud, vol 4, page 300`.
+
+One day, The Prophet (s) started talking about Khadija, so Aisha said: \
+Do I look like I have to do anything with her? She was just a frail old woman, Allah has given you better. \
+The Prophet (s) became so angry that the hair on his head was standing. \
+`Sahih Bukhari, vol 5, page 39` \
+`Sahih Muslim, vol 4, page 1889`
+
+Similar occasions: \
+`Musnad Ahmad, vol 41, page 356` \
+`Sahih Bukhari, vol 3, page 1389` \
+`Sahih Muslim, vol 4, page 1889`
+
+**Aisha:** \
+The Prophet (s) gestured to us not to feed him medicine, but since sick people hate medicine, we fed him anyway. He later told us: Everyone in the house should be fed this 'medicine' except Abbas who was not present to see what you were up to. \
+`Sahih Bukhari, vol 4, page 1618, hadith 4189`

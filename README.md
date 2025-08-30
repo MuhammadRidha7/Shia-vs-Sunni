@@ -619,6 +619,8 @@ People picked an Imam for Taraweeh despite Ali being against it, when the news o
 
 # The reality of Tawassul and Taqiyya
 
+Tawassul means asking someone to make du'a for you.
+
 Allah is greater than anything we can imagine, that's why we say "Allahu Akbar". \
 If you limit Allah's greatness to being able to hear all people and understand all languages, then you've committed disbelief. \
 One who thinks The Ahl al-Bayt would be rivaling Allah by simply being able to hear everyone has some serious issues in their understanding of Allah.

@@ -169,6 +169,8 @@ Fatima left in her will that Abu Bakr may not pray upon her, so she was buried n
 Ali buried Fatima nightly without informing Abu Bakr. \
 `Sahih Bukhari, hadith 4240`
 
+To those who claim Ali angered Fatima more than Abu Bakr did, we believe those narrations to be fabrications. If you want to make an objection, you have to use our sources, just as we use your sources to make claims :)
+
 # If Abu Bakr was the righteous caliph, then Fatima died as a kafer
 
 Whoever has not recognized the Imam of his time, has died a death of jahaliyah. \

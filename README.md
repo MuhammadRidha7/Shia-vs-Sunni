@@ -27,12 +27,12 @@ Feel free to contact me.
 
 Some say Shi'as lie about Shi'a beliefs to spread Shi'a beliefs. This doesn't logically hold up. If I tell you that Shi'as believe such-and-such while we actually don't, then even if you believe in it, you still haven't become a Shi'a because you started believing something that is not part of Shi'a beliefs. That being said, I'm only going to Sunni narrations, verses of The Quran, and straightforward logic.
 
-There are some so-called "Shi'as" who equate The Ahl al-Bayt (s) with Allah (swt) himself! This is blatant kufr! They are a minority and they do not represent the actual Shi'as. I wish these people would go be their own sect instead of attaching themselves to us. A certain group loves to make these people look like they have more followers than they actually do.
+There are some so-called "Shi'as" who equate The Ahl al-Bayt with Allah (swt) himself! This is blatant kufr! They are a minority and they do not represent the actual Shi'as. I wish these people would go be their own sect instead of attaching themselves to us. A certain group loves to make these people look like they have more followers than they actually do.
 
 # Rank of The Ahl al-Bayt
 
 **Allah (swt):** \
-Allah only wills to purify you of impurity, O Ahl al-Bayt! and purify you thoroughy. \
+Allah only wishes to purify you of impurity, O Ahl al-Bayt! and purify you thoroughy. \
 `Surah al-Ahzab, verse 33`
 
 Before we discuss the implications of this verse, we will examine who it is about. \
@@ -50,13 +50,13 @@ Umm Salama asked The Prophet (s), "Am I not among you Ahl al-Bayt?", to which Th
 `Jami' ul-Bayan Tarabi, vol 22, page 11 and 13` \
 And many more sources.
 
+Whenever The Prophet (s) passed by the house of Fatima, he would recite the ayah of purification three times. \
+`Shawahid ut-Tanzil, vol 2, page 20`
+
 Whenever The Prophet (s) entered the house of Fatima, he would say: \
 Assalam alaykum Ahl al-Bayt wa rahmatullah wa barakatuh \
 Then, he would recite the ayah of purification. \
 `Majma uz-Zawa'id, by Haytham, vol 9, page 169`
-
-Whenever The Prophet (s) passed by the house of Fatima, he would recite the ayah of purification three times. \
-`Shawahid ut-Tanzil, vol 2, page 20`
 
 Some say The Prophet (s) has said the same thing when passing by the house of Aisha, but that just shows contradictions in authentic Sunni sources:
 
@@ -71,14 +71,18 @@ Allah has 2 wills, a "Tashri'i" will, and a "Takwini" will, and this is somethin
 Tashri'i will means that Allah wants something to happen, but he has let his creation decide if they want it to happen or not. \
 For example, Allah wants us all in heaven, but he does not force anyone, and anyone can disobey his will and enter hell. \
 Takwini will means that Allah does the task himself, and it will definitely happen, for he is all powerful. \
-For example, in `Surah al-Baqara, verse 117` and `Surah Aal Imran, verse 47`, Allah tells "Be!" to something that doesn't exist yet, and it comes into existence, this cannot be tashri'i will, because something that doesn't exist yet cannot carry out the responsibility of coming into existence, so this is clearly referring to the takwini will of Allah, meaning Allah creates it himself and there is nothing that can stop him.
+For example, in `Surah al-Baqara, verse 117` and `Surah Aal Imran, verse 47`, Allah tells "Be!" to something that doesn't exist yet, and it comes into existence, this cannot be tashri'i will, because something that doesn't even exist yet cannot choose to obey or disobey Allah's command to come into existence, so this is clearly referring to the takwini will of Allah, meaning Allah creates it himself.
 
-Allah wishes for us all to be purified, otherwise he wouldn't have sent us so many prophets (s) and messengers (s), but that is his tashri'i will, meaning we can disobey. So when Allah says he ONLY wishes to purify The Ahl al-Bayt, which are The Prophet (s), Ali, Fatima, Hasan and Husayn, it means their form of purification is by force and it is guaranteed. In fact, if we say this purification isn't takwini, then we're saying Allah does not wish anyone else to be pure, and the prophets (s) and messengers (s) were sent for no reason, which is denial of Allah's wisdom and is kufr.
+Allah wishes for us all to be purified, otherwise he wouldn't have sent us so many prophets (s) and messengers (s), but that is his tashri'i will, meaning we can disobey. So when Allah says he ONLY wishes to purify The Ahl al-Bayt, which are The Prophet (s), Ali, Fatima, Hasan and Husayn, it means their form of purification is special and it is guaranteed. In fact, if we say this purification isn't special, then we're saying Allah does not wish anyone else purity, and the prophets (s) and messengers (s) were sent for no reason, which is denial of Allah's wisdom and is kufr.
 
-In `Surah al-Anfal, verse 11`, Allah tells the Sahaba that he wills to purify them from the impurity of satan. Since Allah has said only The Ahl al-Bayt get purification, the purification of the Sahaba must be tashri'i, meaning it's up to them to accept Allah's purification or not, just like any other normal person, otherwise The Quran would be contradicting itself! If we say Allah changed his mind and decided to include the Sahaba as well, that would mean Allah's judgement is not perfect and he is not all wise, which is kufr.
+In `Surah al-Anfal, verse 11`, which was revealed before the purification of The Ahl al-Bayt, Allah tells the Sahaba that he wills to purify them from the impurity of satan, however, this verse does not indicate whether this is Takwini (the special purification that The Ahl al-Bayt got) or Tashri'i (the regular purification that everyone else gets), so we should examine hadith to check whether their purification was Takwini or Tashri'i, which we will do in the following chapters.
 
-In conclusion, The Ahl al-Bayt are The Prophet (s), Ali, Fatima, Hasan and Husayn, and they are infallible! \
-If they tell you something, considering them liars would go against the words of Allah (swt).
+The Prophet (s) has told us to follow the infallible Ahl al-Bayt: \
+O People! I have indeed left to you something that if you take, you will never go astray. Book of Allah and my Ahl al-Bayt. \
+`Sunan Tirmidhi, hadith 3786`
+
+In conclusion, The Ahl al-Bayt are The Prophet (s), Ali, Fatima, Hasan and Husayn, and they are infallible and mandatory to follow. \
+If they tell you something, especially if they swear by Allah, considering them liars would go against the words of Allah (swt) and his Prophet (s).
 
 # The issue of Fadak
 
@@ -102,7 +106,7 @@ Some claim that the issue of Fadak was a small misunderstanding that was resolve
 **Umar said:** \
 The Prophet (s) passed away, and Abu Bakr became the successor of The Prophet (s), so you two (Ali and Abbas) went to Abu Bakr to request inheritance from The Prophet (s), so Abu Bakr narrated from The Prophet (s), "We prophets don't get inherited, what we leave is charity," so you two saw him as a liar, sinner, deceiver, and traitor, but Allah knows that he was righteous. Then Abu Bakr died, and I (Umar) became the successor of The Prophet (s) and the successor of Abu Bakr, so you two came to me to request inheritance from The Prophet (s), and I narrated the same to you, so you saw me as a liar, sinner, deceiver, and traitor, but Allah knows that I am righteous.
 
-From the beginning of Abu Bakr's caliphate to his death, Ali considered him a sinful deceitful lying traitor, and he did not doubt himself even when Umar repeated what Abu Bakr had said! And Ali saw him too as a sinful deceitful lying traitor.
+From the beginning of Abu Bakr's caliphate to his death, Ali considered him a sinful deceitful lying traitor, and he did not doubt himself even when Umar repeated what Abu Bakr had said! And Ali saw him too as a sinful deceitful lying traitor. The Sahaba cannot be among the infallibles for this simple reason.
 
 # The attack on the house of Fatima
 
@@ -114,12 +118,9 @@ Abu Bakr commanded Umar to take Ali, for bay'ah, Umar went to Fatima's house wit
 Abu Bakr sent Umar to get bay'ah from those who had rejected his caliphate, who were staying at Fatima's house. Umar told them to come out but they rejected. Umar requested firewood and said: By Allah, either come out or I will burn down this house and whoever is inside it. He was told Fatima is inside, he said even if Fatima is inside! \
 `A'lam an-Nisa, vol 4, page 114`
 
-They set her house on fire and caused Muhsin to be miscarried. \
-`Isbat ul-Wasiyah, page 143`
-
 Umar kicked Fatima and caused Muhsin to be miscarried. \
 `Lisan ul-Mizan, by Ibn Hajar, vol 1, page 268`
-> Ibn Hajar rejects this hadith by saying Ibn Abi Darim, the person who narrated this, is from Rawafidh, but he is described in `Siyar A'lam an-Nubala, by Dhahabi, vol 15, page 576 and vol 9, page 555` as being a virtuous Imam with a good memory and all of the six sahih books narrate from him. So either the sahih books aren't actually sahih, or Umar kicked Fatima and caused her to miscarry!
+> Ibn Hajar rejects this hadith by saying Ibn Abi Darim, the person who narrated this, is from Rawafidh, but he is described in `Siyar A'lam an-Nubala, by Dhahabi, vol 15, page 576 and vol 9, page 555` as being a virtuous Imam with a good memory and all of the six sahih books narrate from him. So either the sahih books aren't actually sahih, or Umar kicked Fatima and caused her to miscarry! The truth cannot get any clearer than this.
 
 **The Prophet (s):** \
 When I saw Fatima, I remembered an event that will happen to her, her right taken away from her, her ribs broken, her child miscarried, while she is yelling out 'Wa Muhammadah!', but no one responds to her. She will be the first of my kinsmen to join me, and she will meet me while she is deeply saddened and martyred. O Allah, curse whoever wronged her, punish who took away her right, and humiliate who has humiliated her, and give eternal hellfire to who shattered her ribs and murdered her unborn child. Angels said Ameen. \
@@ -263,10 +264,6 @@ Similar occasions: \
 The Prophet (s) gestured to us not to feed him medicine, but since sick people hate medicine, we fed him anyway. He later told us: Everyone in the house should be fed this 'medicine' except Abbas who was not present to see what you were up to. \
 `Sahih Bukhari, vol 4, page 1618, hadith 4189`
 
-**The Prophet (s) told Aisha:** \
-I hope it (her death) happens and I would be alive so that I would be able to ask for forgiveness for you! Aisha responded: You just want me to die... \
-`Sahih Bukhari, vol 9, page 80`
-
 # More info on the characters of Abu Bakr and Umar
 
 **The Prophet (s):** \
@@ -361,7 +358,7 @@ Sa'd ibn Abi Waqqas was the first person to say "As-Salat khayrun min-an-noum", 
 Abu Bakr and Umar would drink even after it became haram. \
 `Fath ul-Bari, by Ibn Hajar, vol 10, page 37` \
 `Sunan al Kubra, vol 8, page 519` \
-In fact, some Salafi scholars say that drinking is not haram because the sahaba used to engage in it, for example: \
+In fact, some scholars say that drinking is not haram because the sahaba used to engage in it, for example: \
 `Ruh ul-Ma'ani, by Alusi, vol 1, page 509` \
 `Tafsir Qurtubi, vol 3, page 60`
 
@@ -439,7 +436,7 @@ Someone asked Umar a question about The Quran so Umar incarcerated him and hit h
 Has not remained anything in me from the time of jahaliyah, except I am not ashamed of being Nikah'd or doing Nikah. \
 `Tabaqat ul-Kubra, vol 3, page 269`
 
-Some claim nikah here means "taking care" but it's clearly refering to the jihaly way! So it can't be "taking care" or "marriage with the opposite sex" but rather "zina" and "lawat".
+Some claim nikah here means "taking care" but it's clearly refering to the jihaly way! So it can't be "taking care" or "marriage with the opposite sex" but rather "zina" and "lawat". \
 In zina, the man is always the top and the woman is always the bottom, but since Umar is saying he's sometimes the top and sometimes the bottom, he must be talking about lawat and sodomy!
 
 #
@@ -470,12 +467,12 @@ I wish I was a sheep belonging to my family, so that they would fatten me, and w
 `Jami' ul-Ahadith, by Suyuti, vol 13, page 312`
 
 **Allah (swt):** \
-Indeed, the supporters of Allah, they have nothing to fear, nor to grieve. \
+Indeed, the supporters of Allah, they have nothing to fear. \
 `Surah Yunus, verse 62`
 
 # How the "righteous Salaf" treated Uthman
 
-Uthman's corpse was rotting among trash for days and no one cared, on the 4th night, his cousin, Marwan ibn Hakam, and 11 others, none of which were from the sahaba, gathered to take him to a graveyard, but someone said: By Allah! If you bury him here, I will inform the people so that they would come and dig him up! So they took him to a Jewish graveyard, and he was buried there. \
+Uthman's corpse was rotting among trash for days and no one cared, on the 4th night, his cousin, Marwan ibn Hakam, and 11 others, none of which were from the Sahaba, gathered to take him to a graveyard, but someone said: By Allah! If you bury him here, I will inform the people so that they would come and dig him up! So they took him to a Jewish graveyard, and he was buried there. \
 `Istee'ab, vol 3, page 80`
 
 Muawiya commanded the wall separating Baqi and that Jewish graveyard to be broken and to keep burying Muslims near him until his grave was connected to Baqi. \
@@ -527,14 +524,14 @@ Allah is not saying the first of the sahaba, but the best ones among the first o
 Muḥammad is the Messenger of Allah. And those with him are firm with the disbelievers and compassionate with one another. You see them bowing and prostrating, seeking Allah’s bounty and pleasure. The sign on their faces from the trace of prostrating. This is their description in the Torah. And their parable in the Gospel is that of a seed that sprouts its branches, making it strong. Then it becomes thick, standing firmly on its stem, to the delight of the planters—in this way Allah makes the believers a source of dismay for the disbelievers. To those of them who believe and do good, Allah has promised forgiveness and a great reward. \
 `Surah al-Fath, verse 29`
 
-This cannot include all of the sahaba, as many of them went back to their jahili ways of living upon the death of The Prophet (s). \
+This cannot include all of the sahaba, as a considerable number of them went back to their jahili ways of living upon the death of The Prophet (s). \
 `Sahih Bukhari, hadith 2115 and 6212` \
 `Sahih Muslim, Kitab Fadha'il, bab 9` \
 `Fath ul-Bari, by Ibn Hajar, vol 11, page 475` \
 `Umdat ul-Qari, vol 23, page 135 and page 142`
 And more sources...
 
-And regarding the 11th verse of Surah al-Anfal, we discussed that in section 2.
+And regarding the 11th verse of Surah al-Anfal, we examined that in the previous sections.
 
 # The Quran repeatedly blames Aisha and Hafsa
 
@@ -543,7 +540,7 @@ Surah at-Tahreem blames Aisha and Hafsa according to: \
 However, a lot of Sunnis turn a blind eye and ignore their own most authentic book, out of biased love for Aisha.
 
 The 11th verse of Surah al-Hujurat, saying "And do not let some women ridicule others, they may be better than them" was revealed after Aisha and Hafsa ridiculed Umm Salama. \
-`Ruh ul Ma'ani, by Alusi, vol 6, page 152` \
+`Ruh ul-Ma'ani, by Alusi, vol 6, page 152` \
 `Jami' li Ahkam il-Quran, by Qurtubi, vol 16, page 326` \
 `Tafsir Maqatil Sulayman, vol 3, page 262`
 
@@ -684,7 +681,7 @@ The Prophet (s) did as such while he was not worried of anything nor was there r
 
 **Imam Malik:** \
 The Sunnah is to pray without holding your hands. \
-`Tuhfat ul Fuqaha, vol 1, page 126`
+`Tuhfat ul-Fuqaha, vol 1, page 126`
 
 # Sunni beliefs have been corrupted
 
@@ -722,8 +719,8 @@ Our narrations regarding the corruption of The Quran are uncountable. \
 By Allah! Nothing remains from the Sunnah of Muhammad (s) other than them praying together! \
 `Sahih Bukhari, hadith 622`
 
-I do not see anything remaining of the Sunnah of The Prophet (s). \
-`Sahih Bukhari, hadith 506`
-
 All of the Sunnah of The Prophet (s) has been destroyed, except salah, but now, that too, has been destroyed. \
 `Sahih Bukhari, hadith 507`
+
+I do not see anything remaining of the Sunnah of The Prophet (s). \
+`Sahih Bukhari, hadith 506`

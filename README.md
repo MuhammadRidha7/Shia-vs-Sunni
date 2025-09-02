@@ -309,7 +309,10 @@ As Ali killed a few of the flagships of the battle of Uhud, Jibri'il descended a
 `Tarikh Tabari, vol 2, page 514` \
 `Al-Kamil fit-Tarikh, vol 1, pages 551-552`
 
-The Prophet (s) had commanded an army to be led by Osama ibn Zayd, though some people disobeyed and returned to Madina early. When The Prophet (s) heard the news of the disobedience of some people, he was angered, went to the masjid and cursed those who had disobeyed. \
+The Prophet (s) had commanded an army to be led by Osama ibn Zayd, among them were Abu Bakr, Umar, Abu Ubaydah ibn Jarrah, Sa'd ibn Abi Waqqas, etc., and all the aforementioned came up with excuses against the army of Osama. \
+`Fath ul-Bari, vol 8, page 115`
+
+Some disobeyed and returned early. When The Prophet (s) heard the news of the disobedience of some, he was angered, went to the masjid and cursed those who had returned from the army of Osama. \
 `Al-Milal wan-Nahl, vol 1, page 29`
 
 Abu Bakr, instead of returning to the army of Osama, went to his wife. \
@@ -318,10 +321,10 @@ Abu Bakr, instead of returning to the army of Osama, went to his wife. \
 Abu Bakr stayed at his wife's until the news of the death of The Prophet (s) came. \
 `Tarikh Tabari, vol 2, page 442`
 
-Umar had stayed in Madina and was present on last Thursday of The Prophet's (s) life, and denied him being given pen and paper. \
+Umar stayed in Madina and was present on last Thursday of The Prophet's (s) life (in which he denied him being given pen and paper). \
 `Tarikh Tabari, vol 2, page 442`
 
-If they had not disobeyed, Abu Bakr wouldn't have gotten the chance to lead the prayer, and neither of the two would have gotten the chance to be at the Saqifah. And they were cursed for it by The Prophet (s) himself.
+If they had not disobeyed, Abu Bakr wouldn't have gotten the chance to lead the prayer, and neither of the two would have gotten the chance to be at the Saqifah. And they were cursed for it by The Prophet (s) himself. And as the caliph, they went on to attack the house of Fatima, as we examined in section 4.
 
 #
 

@@ -289,12 +289,39 @@ Abu Bakr and wanted to return the caliphate to Ali, but Umar denied him from doi
 
 #
 
-Umar used to recite Al-Fatiha incorrectly in his salah:
+**Ibn Abbas:** \
+Besides Ali, everyone escaped the battle of Hunayn. \
+`Mustadrak, vol 3, page 111`
 
-Correct: Sirat __alladhina__ an'amta alayhim ghayr-il-maghdhubi alayhim __wa la-dhallin__ \
-Umar: Sirata __man__ an'amta alayhim ghayri-il-maghdhubi alayhim __ghayr-idh-dhallina alayhim wa ghayr-adh-dhallin__ \
-`Masahif, by Ibn Abi Dawud, vol 1, pages 284-286` \
-(Ibn Abi Dawud and Ibn Athir have said this hadith has sahih isnad)
+Abu Bakr escaped the battle of Uhud. \
+`Mustadrak, vol 3, page 298`
+
+Umar escaped the battle of Uhud. \
+`Durr ul-Manthur, vol 2, page 335`
+
+Uthman escaped the battle of Uhud. \
+`Isti'ab, vol 3, page 1074` \
+`Tafsir Kabir, vol 9, page 398`
+
+As Ali killed a few of the flagships of the battle of Uhud, Jibri'il descended and said: \ O Prophet of Allah! This is truly sacrifice that Ali is doing, so The Prophet (s) resonded: He is of me, and I am of him, so Jibri'il responded: And I am of you! O Prophet of Allah! \
+`Al-Mu'jam al-Kabir, vol 1, page 318, hadith 941` \
+`Fadha'il us-Sahaba, vol 2, page 657, hadith 1119` \
+`Tarikh Tabari, vol 2, page 514` \
+`Al-Kamil fit-Tarikh, vol 1, pages 551-552`
+
+The Prophet (s) had commanded an army to be led by Osama ibn Zayd, though some people disobeyed and returned to Madina early. When The Prophet (s) heard the news of the disobedience of some people, he was angered, went to the masjid and cursed those who had disobeyed. \
+`Al-Milal wan-Nahl, vol 1, page 29`
+
+Abu Bakr, instead of returning to the army of Osama, went to his wife. \
+`Al-Uthmaniyah, page 80`
+
+Abu Bakr stayed at his wife's until the news of the death of The Prophet (s) came. \
+`Tarikh Tabari, vol 2, page 442`
+
+Umar had stayed in Madina and was present on last Thursday of The Prophet's (s) life, and denied him being given pen and paper. \
+`Tarikh Tabari, vol 2, page 442`
+
+If they had not disobeyed, Abu Bakr wouldn't have gotten the chance to lead the prayer, and neither of the two would have gotten the chance to be at the Saqifah. And they were cursed for it by The Prophet (s) himself.
 
 #
 
@@ -312,6 +339,15 @@ My bay'ah (pledge of allegiance) with Abu Bakr in the saqifah was a miscalculati
 **The Prophet (s):** \
 Pray behind any good or evil person. \
 `Fiqh ala Madhahib Arba'a, vol 1, pages 409-428`
+
+#
+
+Umar used to recite Al-Fatiha incorrectly in his salah:
+
+Correct: Sirat __alladhina__ an'amta alayhim ghayr-il-maghdhubi alayhim __wa la-dhallin__ \
+Umar: Sirata __man__ an'amta alayhim ghayri-il-maghdhubi alayhim __ghayr-idh-dhallina alayhim wa ghayr-adh-dhallin__ \
+`Masahif, by Ibn Abi Dawud, vol 1, pages 284-286` \
+(Ibn Abi Dawud and Ibn Athir have said this hadith has sahih isnad)
 
 #
 
@@ -475,7 +511,7 @@ Indeed, the supporters of Allah, they have nothing to fear. \
 # How the "righteous Salaf" treated Uthman
 
 Uthman's corpse was rotting among trash for days and no one cared, on the 4th night, his cousin, Marwan ibn Hakam, and 11 others, none of which were from the Sahaba, gathered to take him to a graveyard, but someone said: By Allah! If you bury him here, I will inform the people so that they would come and dig him up! So they took him to a Jewish graveyard, and he was buried there. \
-`Istee'ab, vol 3, page 80`
+`Isti'ab, vol 3, page 80`
 
 Muawiya commanded the wall separating Baqi and that Jewish graveyard to be broken and to keep burying Muslims near him until his grave was connected to Baqi. \
 `Tarikh Tabari, vol 2, page 687`
